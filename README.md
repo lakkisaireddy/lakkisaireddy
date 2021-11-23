@@ -1,6 +1,7 @@
 ### Hi there 👋
 #### hii broooooooooooooooooooooooooo 
-### hi 
+### hi manikanta
+### nuvvu king bro
 
 <!--
 **lakkisaireddy/lakkisaireddy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
